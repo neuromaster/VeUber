@@ -1,1 +1,1 @@
-# VeUberCurrency Exchange
+# VeUber Currency Exchange
